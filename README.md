@@ -1,10 +1,2 @@
-- 👋 Hi, I’m Kirbylancero i want to say iloveyou, matagal na rin tayong magka-kilala
-  
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Hi Dar, There are no words to describe how happy I am to have you in my life. Nobody else can truly relate to me the way you can. I appreciate you being the most wonderful person I have ever met. I swear to always love and cherish you. 
 
-<!---
-Kirbylancero/Kirbylancero is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
